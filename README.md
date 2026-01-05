@@ -4,4 +4,4 @@ This is a website with a Jar that my fiance clicks everytime I say IDK and it tr
 
 Turns out i actually carry cash in Colombia, so I got her a real jar! 😂
 
-Maybe I can setup a webcam of the jar so oeople can waych it fill up. 🤔
+Maybe I can setup a webcam of the jar so we can all watch it fill up? 🤔
